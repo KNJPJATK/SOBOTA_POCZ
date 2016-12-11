@@ -14,4 +14,4 @@ Zajęcia odbywają się w soboty, o 12:00
 
 (z I potokiem studiów zaocznych, czyli co dwa tygodnie)
 
-**najbliższe zajęcia 10.12.2016**
+**najbliższe zajęcia 07.01.2017**
