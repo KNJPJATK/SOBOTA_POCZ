@@ -12,6 +12,4 @@ Bezpośredni kontakt z prowadzącym https://www.facebook.com/procek69
 
 Zajęcia odbywają się w soboty, o 12:00
 
-(z I potokiem studiów zaocznych, czyli co dwa tygodnie)
-
-**najbliższe zajęcia 07.01.2017**
+**najbliższe zajęcia 21.01.2017**
